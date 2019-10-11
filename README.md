@@ -8,6 +8,3 @@ This debate is about school uniforms.
 
 Isaiah Heavens
 Josh Taylor
-
-Im ruining this 
-
