@@ -1,5 +1,5 @@
 # Midterm Debate
-![School uniforms debate]( uniformDebate.jpg "Debate")
+![School uniforms debate](uniformDebate.jpg)
 ## About
 
 This debate is about school uniforms.
